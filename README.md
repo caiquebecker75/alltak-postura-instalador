@@ -1,4 +1,4 @@
-# Alltak · Terça do Instalador · Postura na obra
+# Alltak · Terça do Instalador · 5 atitudes
 
 Apresentação da 75 LAB publicada em https://projetos.75lab.com.br/alltak-postura-instalador/
 
